@@ -1,0 +1,3 @@
+-Resell
+-Low Skillcost
+-High AD Rewards 
